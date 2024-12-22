@@ -14,7 +14,8 @@ https://www.gopher.nl/shop/?authorid=11570
 
 ![](@attachment/Clipboard_2024-12-22-06-49-24.png)
 
-https://www.youtube.com/@HGJB
+https://www.youtube.com/@
+
 https://www.youtube.com/watch?v=31D_j2ysN1Y&t=96s
 
 
